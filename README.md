@@ -7,7 +7,7 @@
 ## Under Construction
 ### expected completion date: end of Aug 2020
 
-## I need a job, fuck!
+## I need a job...
 
 
 
