@@ -1,13 +1,6 @@
 ### Hi there 👋
 
-
-## Contributions everyday.
-### But normally it's fake.
-
-## Under Construction
-### expected completion date: end of Aug 2020
-
-## I need a job...
+I love you , guys.
 
 
 
